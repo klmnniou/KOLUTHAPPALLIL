@@ -6,18 +6,8 @@ https://github.com/lokumnin
 
 https://github.com/klmnniou
 
-http://kolumnin.github.io/index.html
-
-http://kolumnin.github.io/Kolumnin.html
-
-<a href="http://kolumnin.github.io/w3egPge1.html">w3pg</a>
-
-https://kolumnin.github.io/Author.html
+http://kolumnin.github.io
 
 http://www.kolumnin.com
 
 http://kolumnin.disqus.com
-
-http://sites.google.com/site/kolumnin
-https://sites.google.com/site/defenceunited/event-calendar
-http://sites.google.com/site/
