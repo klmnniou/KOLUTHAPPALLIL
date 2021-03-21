@@ -10,4 +10,3 @@ http://kolumnin.github.io
 
 http://www.kolumnin.com
 
-http://kolumnin.disqus.com
