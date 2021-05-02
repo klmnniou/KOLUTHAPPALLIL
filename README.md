@@ -8,5 +8,5 @@ https://github.com/klmnniou
 
 http://kolumnin.github.io
 
-http://kolumnin.gitgub.io/KOLUTHAPPALLIL/
+http://klmnniou.gitgub.io/KOLUTHAPPALLIL/
 
