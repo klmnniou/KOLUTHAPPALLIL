@@ -6,5 +6,5 @@ My GitHub organization draft.
 
 [klmnniou](https://github.com/klmnniou)
 
-[Kxx..xx](http://klmnniou.github.io/KOLUTHAPPALLIL/)
+
 
